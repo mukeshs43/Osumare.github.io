@@ -1,0 +1,1 @@
+# o-osumare.github.io
